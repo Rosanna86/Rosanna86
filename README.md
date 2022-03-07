@@ -1,4 +1,4 @@
-Hello! I’m Rosanna, a creative frontend developer and an operative senior graphic designer. 🎨 👩‍💻
+Hello! I’m Rosanna, a creative frontend developer and an operative senior graphic designer working at Quizrr as a Product Specialist. 🎨 👩‍💻
 
 * I'm a graphic designer by heart but discovered a new passion: programming. ❤️‍🔥
 
